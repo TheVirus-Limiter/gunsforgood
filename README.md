@@ -23,7 +23,7 @@ Of course, police and military guns would be exempt to this
 
 ![diagram](https://media.discordapp.net/attachments/982408937720651836/982408978891964506/unknown.png)
 
-#Implementation.
+# Implementation.
 
 California is already suggesting the US' biggest gun buyback. If we get a few more states, or even the central government to chip in then all the older guns will be bought and replaced with this new version. There will be a few stray guns here and there but its mostly going to be eliminated
 
